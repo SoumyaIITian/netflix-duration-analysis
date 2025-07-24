@@ -76,6 +76,6 @@ This question is answered using descriptive statistics and an independent t-test
 **Soumyajit Mondal**  
 Final Year Dual Degree Student, IIT Kharagpur  
 📧 soumyamondal299@gmail.com  
-🔗 [LinkedIn](https://www.linkedin.com/in/soumyajit-mondal)
+🔗 [LinkedIn](https://www.linkedin.com/in/soumyajit-mondal-iitkgp/-)
 ---
 
